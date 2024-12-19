@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @18ashishjoshi
+- 👋 Hi, I’m ASHISH JOSHI
 - 👀 I’m interested in cricket 
 - 🌱 I’m currently learning BE Computer
 - 💞️ I’m looking to collaborate on VIrAT KOHLI And no one
